@@ -14,7 +14,7 @@ Here's what to do:
 
 
 
-![alt tag](http://nextinterfaces.com/i/no-google-doodle-screen.png)
+![alt tag](http://nextinterfaces.com/i/no-google-doodle-screen1.png)
 
 
 
